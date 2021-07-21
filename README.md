@@ -2,7 +2,7 @@
 #### Passionate about the sneaker development industry
 #### Here's the blogs I promote: [0x31.sh](https://0x31.sh/) ; [nullpt.rs](https://nullpt.rs/) ; [devmart.org](https://devmart.org/)
 
-#### Here's my discord: nero#9897. I am mostly busy, but I can work for you if I have time for $30/hr or consultation starting at $50/hr
+#### Here's my discord: nero#9897
 #### If you wanna support me, here's my crypto wallets:
   - #### BTC: 1WiiS9b2WgbMBNanBw9jGcSubBH7L7hWQ
   - #### BTC(SegWit): bc1q6s9utshv8sz80tuzze548v3w3t0eknj9yjrd53
